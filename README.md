@@ -20,3 +20,7 @@ OBJETIVOS ESPECÍFICOS
 
 2. MARCO TEÓRICO
 
+[![Captura-de-pantalla-20230119-101049.png](https://i.postimg.cc/bwPC7ZfL/Captura-de-pantalla-20230119-101049.png)](https://postimg.cc/ykfy9YdS)
+
+
+
