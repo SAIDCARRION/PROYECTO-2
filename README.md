@@ -1,6 +1,6 @@
 # PROYECTO-2
 
-[![Captura-de-pantalla-20230119-094122.png](https://i.postimg.cc/mDJr6xJf/Captura-de-pantalla-20230119-094122.png)](https://postimg.cc/S2LqJPmD)
+[![Captura-de-pantalla-20230119-094317.png](https://i.postimg.cc/8zXgbRxx/Captura-de-pantalla-20230119-094317.png)](https://postimg.cc/TKbsdDdc)
 
 1. OBJETIVOS
 
