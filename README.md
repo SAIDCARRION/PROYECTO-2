@@ -28,7 +28,8 @@ OBJETIVOS ESPECÍFICOS
 
  [![Whats-App-Image-2023-01-19-at-09-34-19.jpg](https://i.postimg.cc/43qzT0hZ/Whats-App-Image-2023-01-19-at-09-34-19.jpg)](https://postimg.cc/Y4N46b3y)
 
-[![Captura-de-pantalla-20230119-101600.png](https://i.postimg.cc/6QwkfHQW/Captura-de-pantalla-20230119-101600.png)](https://postimg.cc/WdWY2wrC)
+
+[![Whats-App-Image-2023-01-19-at-10-15-41.jpg](https://i.postimg.cc/FsTpBDGF/Whats-App-Image-2023-01-19-at-10-15-41.jpg)](https://postimg.cc/ZCy69P1X)
 
 [![Captura-de-pantalla-20230119-101608.png](https://i.postimg.cc/Jhq96byb/Captura-de-pantalla-20230119-101608.png)](https://postimg.cc/bGZCdS9J)
 
