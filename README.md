@@ -26,7 +26,14 @@ OBJETIVOS ESPECÍFICOS
 
 3.1 materiales 
 
- [![Whats-App-Image-2023-01-19-at-09-34-19.jpg](https://i.postimg.cc/43qzT0hZ/Whats-App-Image-2023-01-19-at-09-34-19.jpg)](https://postimg.cc/Y4N46b3y)
+
+1) 1 POR LAMPARAS O ROSETA 
+2) 2 INTERRUPTORES DE 3 VIAS 
+3) 2 CAJAS PARA ENCHUFES
+4) 1 CAJA ORTOGONAL 
+5) CABLES NEGROS Y ROJOS 
+6) 1 ENCHUFE
+7) 1 TABLA TRIPLE TIPO A4 COMO BASE O UNA BASE DE ESPUMAFLEX
 
 
 [![Whats-App-Image-2023-01-19-at-10-15-41.jpg](https://i.postimg.cc/FsTpBDGF/Whats-App-Image-2023-01-19-at-10-15-41.jpg)](https://postimg.cc/ZCy69P1X)
@@ -73,6 +80,7 @@ A continuación se muestra el diagrma que decribe el funcionamiento del circuito
 
 https://www.youtube.com/watch?v=q3oUc9_qnyc
 
+https://youtu.be/n4GGXW_CDJA
 
 
 
