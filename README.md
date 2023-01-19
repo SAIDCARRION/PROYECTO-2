@@ -28,5 +28,14 @@ OBJETIVOS ESPECÍFICOS
 
  [![Whats-App-Image-2023-01-19-at-09-34-19.jpg](https://i.postimg.cc/43qzT0hZ/Whats-App-Image-2023-01-19-at-09-34-19.jpg)](https://postimg.cc/Y4N46b3y)
 
+[![Captura-de-pantalla-20230119-101600.png](https://i.postimg.cc/6QwkfHQW/Captura-de-pantalla-20230119-101600.png)](https://postimg.cc/WdWY2wrC)
+
+[![Captura-de-pantalla-20230119-101608.png](https://i.postimg.cc/Jhq96byb/Captura-de-pantalla-20230119-101608.png)](https://postimg.cc/bGZCdS9J)
+
+[![Captura-de-pantalla-20230119-101614.png](https://i.postimg.cc/pTL3gp83/Captura-de-pantalla-20230119-101614.png)](https://postimg.cc/CZ9v8Mc4)
+
+A continuación se muestra el diagrma que decribe el funcionamiento del circuito:
+
+[![Captura-de-pantalla-20230119-101620.png](https://i.postimg.cc/LXQGR235/Captura-de-pantalla-20230119-101620.png)](https://postimg.cc/8JWZm83g)
 
 
