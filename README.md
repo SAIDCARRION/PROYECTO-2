@@ -22,5 +22,11 @@ OBJETIVOS ESPECÍFICOS
 
 [![Captura-de-pantalla-20230119-101049.png](https://i.postimg.cc/bwPC7ZfL/Captura-de-pantalla-20230119-101049.png)](https://postimg.cc/ykfy9YdS)
 
+3. EXPLICACIÓN DEL PROCEDIMIENTO
+
+3.1 materiales 
+
+ [![Whats-App-Image-2023-01-19-at-09-34-19.jpg](https://i.postimg.cc/43qzT0hZ/Whats-App-Image-2023-01-19-at-09-34-19.jpg)](https://postimg.cc/Y4N46b3y)
+
 
 
